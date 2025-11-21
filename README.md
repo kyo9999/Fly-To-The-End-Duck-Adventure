@@ -20,4 +20,5 @@ Fly To The End: Duck Adventure
 • 1-minute per level, time killer
 • 100+ funny, simple & challenging levels
 • Pro version unlocks all levels & removes ads
+Download ↓
 https://apps.apple.com/us/app/fly-to-the-end-duck-adventure/id906388094
